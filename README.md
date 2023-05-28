@@ -9,4 +9,3 @@
 👋Hi, my name is New Dev, 
 i am a developer and tester of all trojans, 
 i have my own youtube channel (subscribe)
-https://www.youtube.com/@NewDev1904
